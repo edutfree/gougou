@@ -1,10 +1,10 @@
-# 狗狗加速官网地址2024最新入口 + 优惠码
+# 狗狗加速官网地址2025最新入口 + 优惠码
 
-狗狗加速跑路了吗？暂时没有。不过机场总会有跑路风险，为尽可能减少损失，选购套餐可按月支付。下面是最新地址：
+下面是最新地址：
 
 永久官网：[狗狗加速.com](https://xuv.cc/out/doggy)
 
-地址1：[https://doggygo.xyz](https://doggygo.xyz/#/register?code=9ddB5bK3)
+地址1：[https://doggygo.xyz](https://invite.dginv.click/#/register?code=9ddB5bK3)
 
 地址2：[https://dg6.me](https://xuv.cc/out/doggy)
 
@@ -54,3 +54,5 @@
 |年付|¥169.8|¥199.8|¥359.8|
 
 [![狗狗加速机场套餐价格](doggy_20240615_093924.png)](https://xuv.cc/out/doggy)
+
+狗狗加速跑路了吗？暂时没有。不过机场总会有跑路风险，为尽可能减少损失，选购套餐可按月支付。
